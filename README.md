@@ -1,4 +1,4 @@
-# 🌸 Neural Bloom Theory – 30 % Open-Access Excerpt
+# 🌸 Neuro Emotional Bloom Theory – 30 % Open-Access Excerpt
 
 **Plant a seed, grow a life.**  
 A free, citable sampler from the book *Blooming Within: Neuro Emotional Bloom Theory – A Guide to Healing and Growth* (CreatiVentures, 2025).
